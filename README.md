@@ -42,9 +42,3 @@ Auto87自動化操作
 
     ![](https://i.imgur.com/f1mhkOk.png)
 
-* 沒有github的大大也可以請我喝杯咖啡鼓勵我，我覺得喝咖啡真的是人生一大享受^^
-
-* 中信 822 - 462540315932:
-    ![](https://i.imgur.com/sDRr8zd.png)
-* 街口:
-    ![](https://i.imgur.com/kR84Dho.png)
